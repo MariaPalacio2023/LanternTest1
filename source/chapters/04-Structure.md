@@ -4,7 +4,7 @@
 
   ### 1. Historical context. Definition of conflict zones.
 
-  ### 2. 20^th^ and 21^st^ century testimonial narratives in Colombia.
+  ### 2. 20th and 21st century testimonial narratives in Colombia.
 
   ### 3. Space as a social and discursive production.
 
